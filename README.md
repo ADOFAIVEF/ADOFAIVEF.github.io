@@ -1,6 +1,8 @@
 # 欢迎！
 这里是VEF官方网站
 （这个网站还在建设中）
+[加入官方QQ群](https://qm.qq.com/q/JIjTKdzsgS)
+[加入官方KOOK频道](https://kook.vip/VtdCau)
 
 点击此**[按钮](https://docs.qq.com/form/page/DWXV6YkVMZUt6V2p6)**进行投稿
 
